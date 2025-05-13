@@ -29,7 +29,7 @@ Se quiser sugerir melhorias ou apontar algo, fique à vontade para:
 
 Se quiser bater um papo ou trocar ideias:
 
-- LinkedIn: [Seu perfil](https://www.linkedin.com/in/allexfp/)
+- LinkedIn: [Meu perfil](https://www.linkedin.com/in/allexfp/)
 - Email: allessandra.fp@gmail.com
 
 ---
